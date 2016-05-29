@@ -1,1 +1,1 @@
-# janze csgo moviemaking stuffz
+# janze csgo moviemaking stuff
